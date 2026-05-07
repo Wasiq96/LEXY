@@ -1,0 +1,2 @@
+# LEXY
+THSI BOT IS MADE BY WASIQ AKA LEXY (lexy_maybe)
